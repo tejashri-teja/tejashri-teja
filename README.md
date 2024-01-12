@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on xyz
 - 📫 How to reach me my own goal
 - 😄 Pronouns: ...tttttt
-- ⚡ Fun fact: teju
+- ⚡ Fun fact: tejuuu
 
 <!---
 tejashri-teja/tejashri-teja is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
